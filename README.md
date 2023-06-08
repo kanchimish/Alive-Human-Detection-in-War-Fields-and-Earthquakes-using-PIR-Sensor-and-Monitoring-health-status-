@@ -1,0 +1,1 @@
+# Alive-Human-Detection-in-War-Fields-and-Earthquakes-using-PIR-Sensor-and-Monitoring-health-status-
